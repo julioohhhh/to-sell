@@ -8,7 +8,7 @@
 | ------ | ------ | ------ | ------ | ------ | ------ | ------ |
 | Mesa Pinus Meu Movel de Madeira | R$600 | R$960 | Em ótimo estado, com pequenas marcas de uso | [Clique aqui](https://photos.app.goo.gl/uRXwKb9AYrzWXFVZ6) | [link](https://www.meumoveldemadeira.com.br/moveis/mesas/mesas-de-jantar/mesa-de-jantar-4-lugares-lotus-caramelo) | Outubro |
 | 4 cadeiras Toquio Mobly | R$350 | R$691,98 | Pequenas marcas de uso. | [Clique aqui](https://photos.app.goo.gl/uRXwKb9AYrzWXFVZ6) | [link](https://www.mobly.com.br/conjunto-de-2-cadeiras-toquio-preto-445370.html?spall_source=especiais&gclid=Cj0KCQjwssyJBhDXARIsAK98ITQ8EhzlLWC24G71QRfVWuNTOM9hURzQqkS0T-gYXyMNVGWstmWN554aAtEpEALw_wcB) | Outubro |
-| Sofá Komfort house Suede 2 Lugares (Mas cabe umas 4 pessoas) Marrom | R$1300 | R$2650 | Precisa de higienização e reforma no forro (só quem tem gato sabe) Fora isso em ótimo estado. | [Clique aqui](https://photos.app.goo.gl/wZPNGiJFBsVPoHGe6) | [link]() | Outubro |
+| Sofá Komfort house Suede 2 Lugares (Mas cabe umas 4 pessoas) Marrom 230cm x 100cm (retraido) 150cm (aberto)| R$1300 | R$2650 | Precisa de higienização e reforma no forro (só quem tem gato sabe) Fora isso em ótimo estado. | [Clique aqui](https://photos.app.goo.gl/wZPNGiJFBsVPoHGe6) | [link]() | Outubro |
 | Colchão e cama baú pistão Copel Dabe 51 years | R$1100 | R$1670 | Em ótimo estado | [Clique aqui](https://photos.app.goo.gl/NKag1CaxTC1WyceY7) | [link](https://produto.mercadolivre.com.br/MLB-892775618-conjunto-dabe-51-years-casal-bau-pisto-corano-marrom138x188-_JM) | Outubro |
 
 ## Eletrodomésticos/Eletrônicos
@@ -27,8 +27,6 @@
 
 #### Mala de ferramentas R$ 100,00
 #### Nebulisador Multilaser R$ 50,00
-#### Luminária de mesa R$ 70,00 (reservado)
-#### Lampada Casa Inteligente Positivo R$30,00
 #### Jogo PS4 The Witcher 3 R$40
 #### Jogo PS4 NBA2K17 R$20
 #### Jogo PS4 Call of Duty Ininite Warfare R$ 20
