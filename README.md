@@ -26,7 +26,7 @@
 # Outros
 
 #### Nebulisador Multilaser R$ 40,00 
-#### Jogo PS4 The Witcher 3 R$20
+#### Jogo PS4 The Witcher 3 R$20 (VENDIDO)
 #### Jogo PS4 NBA2K17 R$10
 #### Jogo PS4 Call of Duty Ininite Warfare R$ 10
 
