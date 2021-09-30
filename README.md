@@ -25,7 +25,6 @@
 
 # Outros
 
-#### Mala de ferramentas R$ 80,00
 #### Nebulisador Multilaser R$ 40,00
 #### Jogo PS4 The Witcher 3 R$20
 #### Jogo PS4 NBA2K17 R$10
